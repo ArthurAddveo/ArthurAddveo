@@ -16,4 +16,4 @@ React · Vue · Node.js
 ---
 
 🌐・[addveo.com](https://addveo.com) 
-✉️・contact@addveo.team
+✉️・arthurt@addveo.team
