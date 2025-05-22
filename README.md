@@ -7,6 +7,7 @@ Fondateur @ **Addveo** | Chef de projet @ **Slanting Studios**
 ---
 
 〃**Gestion & Communication**  
+
  Pilotage · Planification · Innovation  
 
 〃**Développement Frontend**  
