@@ -2,7 +2,7 @@
 
 ---
 
-CEO @ **Addveo** | Chef de projet @ **Slanting Studios**
+CEO @ **Addveo** | Former @ **Slanting Studios**
 
 ---
 
