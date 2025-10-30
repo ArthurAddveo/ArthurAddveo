@@ -2,10 +2,6 @@
 
 ---
 
-CEO @ **Addveo** | Former @ **Slanting Studios**
+CEO @ **Addveo** 
 
 ---
-
-🌐・[addveo.com](https://addveo.com) 
-
-✉️・arthur@addveo.team
